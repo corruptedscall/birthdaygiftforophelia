@@ -3,7 +3,7 @@
     <tr>
       <td> <details> <summary>  ㅤ <img height="20" alt="tumblr_022fae4ae159a77a717622aa36ca995f_d8cb9d41_75" src="https://github.com/user-attachments/assets/658a6aec-65e7-4c1e-9aa5-f492e07e60b8" />   $${\color{#40bdac}ㅤ⊹ㅤ  𝓎𝑜uㅤㅤㅤ  ᥅ꫀceivꫀᦔㅤ  ㅤㅤ  aㅤ }$$ $${\color{#6effcf}𝓁e𝓉𝓽er ㅤㅤ ! }$$ </summary> 
 
-  <img width="600" alt="tumblr_f3840fc424ca1462da9b372278eb0093_10ade364_500" src="https://github.com/user-attachments/assets/94b4a0d1-625c-4e15-842b-305a2ccaf515" /> <p> </p>
+ <div align="center"> <img width="600" alt="tumblr_f3840fc424ca1462da9b372278eb0093_10ade364_500" src="https://github.com/user-attachments/assets/94b4a0d1-625c-4e15-842b-305a2ccaf515" /> </div> <p> </p>
 
  <div align="center"> <img height="30" alt="tumblr_1fce6d876267177b02ca0bf6a380f9d9_cebf22b7_250" src="https://github.com/user-attachments/assets/23a86125-e115-46d4-86dd-a22b7689239a" />ㅤ ㅤ  <img height="30" alt="tumblr_2bfe23e39e907360c6591324c7da6601_b61e245a_250" src="https://github.com/user-attachments/assets/24947933-75bf-41cc-b3bd-1710102521d0" /> </div>
  <br>
@@ -17,7 +17,7 @@
           > please be over 13+, as i do not want children interacting as we are bodily an adult <p> </p>
           > dont treat us like a roleplay, we are a DID system <p> </p>
            </details>           
-<img height="40" alt="tumblr_c35d66fa172554e3a64923d31bd05dfe_14c30236_2048" src="https://github.com/user-attachments/assets/9ad164da-6b55-4c3d-b645-de44ff9ceef0" />
+<div align="center"> ────────────୨ৎ──────────── </div> <p> </p>
          <details> <summary>  <img height="20" alt="tumblr_0fcd30174522e9914ab01aa6616017e8_73d3fbe9_75" src="https://github.com/user-attachments/assets/821a0bb2-4fc6-4e2c-8804-4f5ae13f52eb" />ㅤ  $${\color{#48b8ab}dni's ㅤ /  ㅤdo ㅤㅤnot}$$ㅤㅤ $${\color{#5effda}interact's}$$  </summary>
          <br>
            > pedophiles, groomers, zoophiles, problematic people, proshippers <p> </p>
@@ -27,9 +27,20 @@
   </table>
 </div>
 <p>
+  <br>
+<div align="center">  $${\color{#0c7d63}DID ㅤ₊ ⊹ㅤㅤ  system゛  ㅤㅤㅤ⸝⸝.ᐟ}$$ ㅤㅤㅤ $${\color{#29ffcd}she}$$ ㅤㅤㅤ  $${\color{#66ffdb}𖹭.ᐟ}$$ ㅤㅤㅤ  $${\color{#29ffcd}they}$$ </div>
+         <br>
+         <div align="center"> <details> <summary>ㅤㅤ<img height="20" alt="tumblr_2907545ea54572aa059372685bcdc8b8_0ab377d9_75" src="https://github.com/user-attachments/assets/efc4976a-2e2c-4c04-a2d0-b90cdea6eb94" />ㅤ  $${\color{#0c7d63}mutualsㅤㅤ ⊹ ㅤㅤfriends}$$  </summary>
+           <br>
+        <a href=https://rentry.co/rob10xians/>the rob10xians</a> ::ㅤㅤ  <a href=https://github.com/corruptedscall>corruptedscall</a>ㅤㅤ  <a href=https://github.com/pwppy>pwppy</a> ㅤㅤ <a href=https://github.com/healrr>healrr</a>ㅤㅤ  <a href=https://github.com/clockworkclover>clockworkclover</a>ㅤㅤ  <a href=https://github.com/deviousduoz>deviousduoz</a>ㅤㅤ  <a href=https://github.com/202xyuri>202xyuri</a>ㅤㅤ  <a href=https://github.com/casino-flush>casino-flush</a>ㅤㅤ  <a href=https://github.com/prizeflush>prizeflush</a>ㅤㅤ  <a href=https://github.com/Gr1mzR0se>Gr1mzR0se</a>
+         </details>
+           <br>
+         </div>
 </details>
     </tr>
   </table>
 </div>
 
 <div align="center"> <a href="https://hits.sh/github.com/TheTrueEyecollective/"><img alt="Hits" src="https://hits.sh/github.com/TheTrueEyecollective.svg?view=today-total&style=plastic&label=%60%60%20%20may%20i%20%20%20have%20this%20%20%20%20%20%20dance%3F%20%20%60%60&color=0eb8ad&labelColor=144644"/></a> </div>
+<br>
+<div align="center">         <a href=https://rentry.co/rob10xians/>rob10xians</a> ㅤㅤ   ㅤ   <a href=https://follyseternallimbo.straw.page/>strawpage</a> ㅤㅤㅤ     <a href=https://thetrueeyechapel.atabook.org/>新book</a> </div>
