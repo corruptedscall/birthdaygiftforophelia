@@ -52,5 +52,4 @@
 </div>
 
 <div align="center"> <a href="https://hits.sh/github.com/TheTrueEyecollective/"><img alt="Hits" src="https://hits.sh/github.com/TheTrueEyecollective.svg?view=today-total&style=plastic&label=%60%60%20%20may%20i%20%20%20have%20this%20%20%20%20%20%20dance%3F%20%20%60%60&color=0eb8ad&labelColor=144644"/></a> </div>
-<br>
 <div align="center">         <a href=https://rentry.co/rob10xians/>rob10xians</a> ㅤㅤ   ㅤ   <a href=https://follyseternallimbo.straw.page/>strawpage</a> ㅤㅤㅤ     <a href=https://thetrueeyechapel.atabook.org/>新book</a> </div>
