@@ -27,13 +27,23 @@
   </table>
 </div>
 <p>
-  <br>
-<div align="center">  $${\color{#0c7d63}DID ㅤ₊ ⊹ㅤㅤ  system゛  ㅤㅤㅤ⸝⸝.ᐟ}$$ ㅤㅤㅤ $${\color{#29ffcd}she}$$ ㅤㅤㅤ  $${\color{#66ffdb}𖹭.ᐟ}$$ ㅤㅤㅤ  $${\color{#29ffcd}they}$$ </div>
+<img width="600" alt="tumblr_2de0f03908aa8d4fdf68ea99828c8460_c350e942_2048" src="https://github.com/user-attachments/assets/710901ed-1af4-4565-bcc2-242371abf2d1" />
+<div align="center">  $${\color{#0c7d63}DID ㅤ₊ ⊹ㅤㅤ  system゛  ㅤㅤㅤ}$$  <img height="20" alt="tumblr_10e81376e67c7e9ef689eb89ba19d9a0_0ae34df2_75" src="https://github.com/user-attachments/assets/67e11f46-3b39-40ba-9774-271f78c9f7d0" /> ㅤㅤㅤ $${\color{#29ffcd}she}$$ ㅤㅤㅤ  $${\color{#66ffdb}𖹭.ᐟ}$$ ㅤㅤㅤ  $${\color{#29ffcd}they}$$ </div>
          <br>
-         <div align="center"> <details> <summary>ㅤㅤ<img height="20" alt="tumblr_2907545ea54572aa059372685bcdc8b8_0ab377d9_75" src="https://github.com/user-attachments/assets/efc4976a-2e2c-4c04-a2d0-b90cdea6eb94" />ㅤ  $${\color{#0c7d63}mutualsㅤㅤ ⊹ ㅤㅤfriends}$$  </summary>
+<div align="center">
+      <table>
+        <tr>
+          <td> <details> <summary>ㅤ $${\color{#0c7d63}۪ㅤㅤ𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ ㅤmutualsㅤㅤ ⊹ ㅤㅤfriends}$$ㅤ  <img height="20" alt="tumblr_2907545ea54572aa059372685bcdc8b8_0ab377d9_75" src="https://github.com/user-attachments/assets/efc4976a-2e2c-4c04-a2d0-b90cdea6eb94" /> </summary>
            <br>
-        <a href=https://rentry.co/rob10xians/>the rob10xians</a> ::ㅤㅤ  <a href=https://github.com/corruptedscall>corruptedscall</a>ㅤㅤ  <a href=https://github.com/pwppy>pwppy</a> ㅤㅤ <a href=https://github.com/healrr>healrr</a>ㅤㅤ  <a href=https://github.com/clockworkclover>clockworkclover</a>ㅤㅤ  <a href=https://github.com/deviousduoz>deviousduoz</a>ㅤㅤ  <a href=https://github.com/202xyuri>202xyuri</a>ㅤㅤ  <a href=https://github.com/casino-flush>casino-flush</a>ㅤㅤ  <a href=https://github.com/prizeflush>prizeflush</a>ㅤㅤ  <a href=https://github.com/Gr1mzR0se>Gr1mzR0se</a>
+       <img height="50" alt="tumblr_7d1fc5cb4164ac06da195c4909baee2c_de07cae2_1280" src="https://github.com/user-attachments/assets/2fa5985a-60c9-496e-aac9-e10e0066e27f" />ㅤㅤ <a href=https://rentry.co/rob10xians/>the rob10xians</a> ::ㅤㅤ  <p> </p>
+            <a href=https://github.com/corruptedscall>corruptedscall</a>ㅤㅤ  <a href=https://github.com/pwppy>pwppy</a> ㅤㅤ <a href=https://github.com/healrr>healrr</a>ㅤㅤ  <a href=https://github.com/clockworkclover>clockworkclover</a>ㅤㅤ  <a href=https://github.com/deviousduoz>deviousduoz</a>ㅤㅤ<p> </p>
+            <a href=https://github.com/202xyuri>202xyuri</a>ㅤㅤ  <a href=https://github.com/casino-flush>casino-flush</a>ㅤㅤ  <a href=https://github.com/prizeflush>prizeflush</a>ㅤㅤ  <a href=https://github.com/Gr1mzR0se>Gr1mzR0se</a>
          </details>
+          </tr>
+  </table>
+</div>
+           <br>
+           gifted by ㅤ <a href=https://github.com/corruptedscall>overseer / venomshank / ren</a>
            <br>
          </div>
 </details>
